@@ -1,1 +1,1 @@
-![Image of Bees](https://imgur.com/a/vxHsYtN)
+![Image of Bees](https://i.imgur.com/Xj3CbKJ.jpg)
