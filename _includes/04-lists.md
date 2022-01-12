@@ -1,4 +1,4 @@
-1. favorite food
+1. Favourite food
   * 🐷 
   * 🐮
   * 🥚
